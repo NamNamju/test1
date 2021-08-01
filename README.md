@@ -1,1 +1,2 @@
+Yebin Seo
 Miryang Jung
